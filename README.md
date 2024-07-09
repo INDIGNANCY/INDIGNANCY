@@ -1,0 +1,1 @@
+![IMG_7397](https://github.com/INDIGNANCY/INDIGNANCY/assets/175076888/528952b8-022b-4466-a168-4bee1c2a29ad)
