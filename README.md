@@ -11,6 +11,6 @@ DNIUC = Do not interact unless close <br />
 W2I = Whisper to interact <br />
   --------------- <br />
 I would prefer people dont boop me or kiss me or start a convo unless I am already talking to you. If not, do not do this PERIOD, i  will either ignore you or hide you. <br />
-(Also don't copy my skins. this is pretty obvious) <br />
+(Also don't copy my skins. this is pretty obvious. you can ask how I made certain things, but you cant just copy everythin) <br />
 <br />
 Thank you for reading!
