@@ -4,7 +4,7 @@
 I am in various fandoms, but my biggest fixation is DnB. I mostly hang around the DnB area, however sometimes I go sit in other places near the dock. <br />
   <br />
 I'm usually offtab when I'm not with anyone in PT. <ins>please keep this in mind.</ins> <br />
-Sometimes my names will have acronyms for whether I want people to interact or not. If you would like to interact, <ins>PLEASE</ins> whisper me. Friends or acquaintances don't have to whisper. If i don't respond, Im probably offtab or im nervous to talk. <br />
+Sometimes my names will have acronyms for whether I want people to interact or not. If you would like to interact, <ins>PLEASE</ins> whisper me. Friends and acquaintances don't have to whisper. If i don't respond, Im probably offtab or im nervous to talk. <br />
 --------------- <br />
 DNI = Do not interact <br />
 DNIUC = Do not interact unless close <br />
